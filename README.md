@@ -1,4 +1,4 @@
-### Hi 👋
+### Hi, I'm Seoyoung Oh 👋
 
 ### Contacts
 email: ohsy0512@naver.com
